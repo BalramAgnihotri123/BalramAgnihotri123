@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **Technical Products**
 
-- 🤝 I’m looking for help with **Any Software related query**
+- 🤝 I’m looking to help with **Any Software related query**
 
 - 📫 How to reach me **balramagni19@gmail.com**
 
